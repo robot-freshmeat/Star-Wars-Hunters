@@ -240,4 +240,4 @@ Star Wars: Hunters is available as a full free version with all features and upd
 Ready to jump into battle? **Download Star Wars: Hunters now and become part of the action!**
 
 ---
-**Last updated:** 2026-10-18 03:32:17 UTC
+**Last updated:** 2026-10-18 08:39:31 UTC
